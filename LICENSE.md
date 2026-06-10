@@ -1,4 +1,4 @@
-# 
+# Principal Semantic Code Search preajustes. Con sincronización en la nube y soporte multimodal — optimizado para el máximo rendimiento y eficiencia.
 
 
 
